@@ -1,3 +1,4 @@
+JESUS ONLY
 - 👋 Hi, I’m @ichidera
 - 👀 I’m interested in Gaming, Youtubing, Animations, Hacking, Graphics design
 - 🌱 I’m currently learning Courses under CS50x Havard
